@@ -1,0 +1,1 @@
+# If you hurry, you will make people laugh.
